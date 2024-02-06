@@ -1,2 +1,3 @@
 # CognoRise-InfoTech
-here is my adventure in CongoRise internship start.
+Here IS MY Adventure In CongoRise internship start....... 3 2 1.
+
